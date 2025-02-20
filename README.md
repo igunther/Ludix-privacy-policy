@@ -1,4 +1,4 @@
-# Ludix-privacy-policy
+# Ludix Privacy Policy
 
 Privacy Policy for the Ludix Game
 
